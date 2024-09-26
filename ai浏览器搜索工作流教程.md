@@ -22,3 +22,18 @@ https://www.perplexity.ai/search/cozegong-zuo-liu-jiao-cheng-r4VM.MMGROSVEXwWZ3C
 扣子工作流教程 YouTube
 https://youtu.be/BpOEVg85Nos?si=e_63JHO1Uca5OIZ6
 
+
+
+通俗易懂   coze教程
+
+https://youtu.be/BF1Iu60-ODw?si=-dzrYk6mtQBSGQYf
+
+
+
+
+
+
+
+
+
+
